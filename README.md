@@ -12,3 +12,8 @@ WARNING: THIS WAS TYPED WITH ONE HAND
 so today was a boring day nothing much to say.
 Well I did try to make a paper city in only one day.
 Rediculus right. Well Thats all.
+
+8/17/2020
+Today I asked my mom if she could say yes to everything me and my brother said for 24hrs.
+On satarday and she said yes. Oh by do I have a lot of things to do in that day. She also set up 
+a reservation for the pool so Im really looking forward to that.
