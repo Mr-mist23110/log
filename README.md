@@ -24,3 +24,7 @@ relax and leave the bed at 10:00. After that my mom made me
 spell a bunch of words because a didn't know how to spell signature.
 After that, after I had dinner I noticed that there was no juice
 so I made a berry smoothie. With this: Frozen berrys, ice cream, milk, and whipped cream.    
+
+**8/19/2020**
+today I don't have much to say except for the epic smoothie fail I had today It
+was DISGUSTING. Well thats it.
