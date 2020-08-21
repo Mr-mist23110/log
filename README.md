@@ -28,3 +28,8 @@ so I made a berry smoothie. With this: Frozen berrys, ice cream, milk, and whipp
 **8/19/2020**
 today I don't have much to say except for the epic smoothie fail I had today It
 was DISGUSTING. Well thats it.
+
+**8/20/2020**
+so iv'e been wondering why did github choose coffescript for their coding language 
+since i haven't learned to code this language. I cant do any thing I can only **BOLD** 
+words. thanks :)
