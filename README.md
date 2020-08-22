@@ -30,6 +30,12 @@ today I don't have much to say except for the epic smoothie fail I had today It
 was DISGUSTING. Well thats it.
 
 **8/20/2020**
-so iv'e been wondering why did github choose coffescript for their coding language 
+so iv'e been wondering why did github choose Coffescript for their coding language 
 since i haven't learned to code this language. I cant do any thing I can only **BOLD** 
-words. thanks :)
+words. thanks for listenig :)
+
+**8/21/2020**
+so today I had a busy day first I had to go out to get our laptpos. 
+Then, we had to get out of the house again
+to get my books at a diffrent school. After that,
+we went out for a walk for a long time and it was really fun.
