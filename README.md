@@ -39,3 +39,10 @@ so today I had a busy day first I had to go out to get our laptpos.
 Then, we had to get out of the house again
 to get my books at a diffrent school. After that,
 we went out for a walk for a long time and it was really fun.
+
+**8/22/2020**
+today we got to boss mommy around. Then we got to go to the pool.
+After that, to to Chick-fil-a for lunch. 
+then we got to eat really good tasting chips for a snack. 
+after that, we ate dinner and made a fruit smoothie.
+so it was a really good day.
