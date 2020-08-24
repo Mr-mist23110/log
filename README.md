@@ -46,3 +46,6 @@ After that, to to Chick-fil-a for lunch.
 then we got to eat really good tasting chips for a snack. 
 after that, we ate dinner and made a fruit smoothie.
 so it was a really good day.
+
+8/23/2020
+nothing to say today.
