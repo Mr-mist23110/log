@@ -47,5 +47,9 @@ then we got to eat really good tasting chips for a snack.
 after that, we ate dinner and made a fruit smoothie.
 so it was a really good day.
 
-8/23/2020
+**8/23/2020**
 nothing to say today.
+
+**8/24/2020**
+today we got to finnaly play Roblox cool.
+
