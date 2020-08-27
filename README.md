@@ -42,14 +42,23 @@ we went out for a walk for a long time and it was really fun.
 
 **8/22/2020**
 today we got to boss mommy around. Then we got to go to the pool.
-After that, to to Chick-fil-a for lunch. 
+After that, we went to Chick-fil-a for lunch. 
 then we got to eat really good tasting chips for a snack. 
 after that, we ate dinner and made a fruit smoothie.
 so it was a really good day.
 
 **8/23/2020**
-nothing to say today.
-
+nothing to say today
 **8/24/2020**
 today we got to finnaly play Roblox cool.
 
+
+8/25/2020
+so today we got to go to CVS and GIANTS 
+and we got to get chips.
+
+8/25/2020
+today was just another day of playing roblox 
+doing my list and playing more roblox.
+Nothing much but I got to drink a milkshake for 
+breakfast. Really good tasting.
