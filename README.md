@@ -53,12 +53,19 @@ nothing to say today
 today we got to finnaly play Roblox cool.
 
 
-8/25/2020
+**8/25/2020**
 so today we got to go to CVS and GIANTS 
 and we got to get chips.
 
-8/25/2020
+**8/25/2020**
 today was just another day of playing roblox 
 doing my list and playing more roblox.
 Nothing much but I got to drink a milkshake for 
 breakfast. Really good tasting.
+
+(sorry that I missed two days. :()
+**8/29/2020**
+so today we got to go for a walk.
+I got to play a bunch of Roblox.
+Also I got really for on RONALD (also on Roblox).
+Other than that normal day. Bye!
